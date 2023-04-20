@@ -7,4 +7,4 @@
 2. Спать
 3. Звонко петь песни
 
-![Фото кота](unnamed.jpg) 
+![Фото кота](http://funart.pro/uploads/posts/2021-07/1627124360_2-funart-pro-p-delovoi-kot-zhivotnie-krasivo-foto-2.jpg)
